@@ -1,0 +1,2 @@
+# beadando
+Elso beadando feladat.
